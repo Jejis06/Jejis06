@@ -1,4 +1,4 @@
-Im Jejis06 and 
+Im @Jejis06 
 
 <!---
 Jejis06/Jejis06 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
